@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @adrielygomes0505
 - 👀 I’m interested in basic mechanics
-- 🌱 I’m currently high school
+- 🌱 I’m currently doing store structure
 - 💞️ I’m looking to collabor in help with events,
 Help groups in slack,
 Participate in forums,
